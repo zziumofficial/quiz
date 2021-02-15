@@ -1,0 +1,1 @@
+NALEŻY OTWORZYĆ PLIK index.html I CIESZYĆ SIĘ GRĄ!
